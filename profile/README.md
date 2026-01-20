@@ -1,4 +1,4 @@
-<img width="256" height="252" alt="image" src="https://github.com/user-attachments/assets/bbed3064-c6fb-4a2e-abac-a682928c70ac" />
+<img width="256" height="252" alt="537587440-bbed3064-c6fb-4a2e-abac-a682928c70ac" src="https://github.com/user-attachments/assets/b6992788-4a34-4e5a-ae23-e9ad969e0bf1" />
 
 # 🪐 Witch of Philosophia  
 ### 위치 오브 필로소피아
